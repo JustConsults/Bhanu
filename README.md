@@ -1,0 +1,2 @@
+# Bhanu
+There are two common reasons homeowners take on repair jobs; first is they are highly needed and the second is to increase the resale value of their house. As long as you spend time and money for the first reason, you are perfectly fine. It is when you begin thinking more about the second reason that you may get frustrated. Even if repair jobs increase value to your house, only few get back the money they incurred.
